@@ -1,3 +1,0 @@
-#Amanda Poit Albuquerque Resende RA: 2041382411019
-# Giovanna Nunes Simões de Almeida RA: 2041382411029
-# ISABELA REIKDAL BOMBONATTO LUGO  RA: 2041382411011 
